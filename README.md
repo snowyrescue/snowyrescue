@@ -1,13 +1,8 @@
-<br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=%E0%B8%85%20%E0%B8%85&labelColor=%23fef4af&countColor=%23ed7bb2&style=plastic)](https://visitorbadge.io/status?path=coal-irl)
-
-<br><p align="center">![image](https://wilardo.crd.co/assets/images/gallery03/3f2b571a_original.png?v=fbf31c4c)
+<br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=coals%20in%20stockings&labelColor=%23a63715&countColor=%23242424&style=plastic)](https://visitorbadge.io/status?path=coal-irl)
+<br><p align="center"><img width="200" height="220" alt="image" src="https://64.media.tumblr.com/fbf63427a22c978ffc84fe86aca3627e/ec334a9a62cd7418-13/s1280x1920/c5f72bf1b186879474a84172222f44d87d13ca37.pnj" />
  <br><p align="center">[ata](https://coal.atabook.org/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
- <div align="center">07:38 PM[Pony #36] Coal please get out of Florida bro you’re stinking up the whole state get out of Orange county dude the county now has a green fart bubble
-<div align="center">07:38 PM[Pony] let’s go and bomb orange county coal begone
-<div align="center">07:08 PM[Pony #30] Guys isnt coal located in flordia orlando and their county is orange county
-
 <table align="center"><th>
-<details><summary> <br>$\text{\small\it\color{#eef279}blacklist + dni}$</summary>  
+<details><summary> <br>$\text{\small\it\color{#d41914}blacklist + dni}$</summary>  
 <br> ship discourse
 <br> pedos + zoos
 <br> if you have beef with my friends
