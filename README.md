@@ -2,7 +2,7 @@
 <br><p align="center"><img width="200" height="220" alt="image" src="https://64.media.tumblr.com/fbf63427a22c978ffc84fe86aca3627e/ec334a9a62cd7418-13/s1280x1920/c5f72bf1b186879474a84172222f44d87d13ca37.pnj" />
  <br><p align="center">[ata](https://coal.atabook.org/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
 <table align="center"><th>
-<details><summary> <br>$\text{\small\it\color{#d41914}blacklist + dni}$</summary>  
+<details><summary> <br>$\text{\small\it\color{#d41914}dni}$</summary>  
 <br> ship discourse
 <br> pedos + zoos
 <br> if you have beef with my friends
