@@ -1,5 +1,5 @@
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=coals%20in%20stockings&labelColor=%23a63715&countColor=%23242424&style=plastic)](https://visitorbadge.io/status?path=coal-irl)
-<br><p align="center"><img width="200" height="220" alt="image" src="https://64.media.tumblr.com/fbf63427a22c978ffc84fe86aca3627e/ec334a9a62cd7418-13/s1280x1920/c5f72bf1b186879474a84172222f44d87d13ca37.pnj" />
+<br><p align="center">![image](https://64.media.tumblr.com/30690e0a7ff3350be3f199fa347db048/0c390c99e0e1c718-7f/s250x400/b6b8855d1a89b3a81e3b537d8095880bacc15c80.pnj)
  <br><p align="center">[ata](https://coal.atabook.org/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
 <table align="center"><th>
 <details><summary> <br>$\text{\small\it\color{#d41914}dni}$</summary>  
