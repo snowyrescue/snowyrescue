@@ -8,7 +8,9 @@
 <br> if you have beef with my friends
 <br> Fictionkilled Family 
 <br> Karin / Jill (pedo)
-<br> Minnie
+<br> M4gg0tzz
+<br> Arthurmorganslove
+<br> PennywisefansDNI
 <br> banbanned (the three musks)
 <br> RIGM0RMORTIS (the three musks)
 <br> robotinretrospect (the three musks)
@@ -26,4 +28,5 @@
 <br> Cloudy-OG
 <br> mallyblaze
 <br> Cobblebob
+<br> reflectivedetective
 <br> this will be updated whenever, your on here for a reason so don't bother asking why.
