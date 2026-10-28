@@ -6,8 +6,6 @@
 
 https://github.com/user-attachments/assets/9c7d2f4f-a2d3-4e57-bf57-9f46ffedd171
 
-https://github.com/user-attachments/assets/8cf046cf-375e-41af-ae86-914d9a83298e
-
 <table align="center"><th>
 <details><summary> <br>$\text{\small\it\color{#d41914}dni}$</summary>  
 <br> ship discourse
@@ -15,6 +13,8 @@ https://github.com/user-attachments/assets/8cf046cf-375e-41af-ae86-914d9a83298e
 <br> if you have beef with my friends
 <br> Fictionkilled Family 
 <br> Karin / Jill (pedo)
+<br> Waxwellkil
+<br> Vintagefossil
 <br> M4gg0tzz
 <br> Arthurmorganslove
 <br> PennywisefansDNI
