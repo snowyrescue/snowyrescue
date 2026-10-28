@@ -2,7 +2,9 @@
 <br><p align="center">![image](https://64.media.tumblr.com/30690e0a7ff3350be3f199fa347db048/0c390c99e0e1c718-7f/s250x400/b6b8855d1a89b3a81e3b537d8095880bacc15c80.pnj)
  <br><p align="center">[ata](https://coal.atabook.org/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
 
-<br><p align="center">Hi Maggots ik ur reading this
+<br><p align="center">ykw im mad asl heres my vocal stim
+
+https://github.com/user-attachments/assets/9c7d2f4f-a2d3-4e57-bf57-9f46ffedd171
 
 https://github.com/user-attachments/assets/8cf046cf-375e-41af-ae86-914d9a83298e
 
@@ -38,4 +40,7 @@ https://github.com/user-attachments/assets/8cf046cf-375e-41af-ae86-914d9a83298e
 <br> Cobblebob
 <br> reflectivedetective
 <br> this will be updated whenever, your on here for a reason so don't bother asking why.
+<details>
+
+
 
