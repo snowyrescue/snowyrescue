@@ -40,7 +40,6 @@ https://github.com/user-attachments/assets/8cf046cf-375e-41af-ae86-914d9a83298e
 <br> Cobblebob
 <br> reflectivedetective
 <br> this will be updated whenever, your on here for a reason so don't bother asking why.
-<details>
 
 
 
