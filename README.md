@@ -11,27 +11,17 @@ https://github.com/user-attachments/assets/9c7d2f4f-a2d3-4e57-bf57-9f46ffedd171
 <br> ship discourse
 <br> pedos + zoos
 <br> if you have beef with my friends
-<br> Fictionkilled Family 
 <br> Karin / Jill (pedo)
-<br> Waxwellkil
+<br> Pringlesmorty
 <br> Vintagefossil
 <br> M4gg0tzz
 <br> Arthurmorganslove
 <br> PennywisefansDNI
-<br> banbanned (the three musks)
-<br> RIGM0RMORTIS (the three musks)
-<br> robotinretrospect (the three musks)
 <br> luiceren 
 <br> kitdere
 <br> cocopuffpuffs
-<br> Treeye
-<br> Woodblock
-<br> Blackhole/Soulvstr
-<br> laceduppup
-<br> SideCharacter-001
 <br> Dandyzworldyuri
 <br> a1p1yuri
-<br> theglichedsystem
 <br> Minibuh
 <br> MortueDull
 <br> Lightblade17
