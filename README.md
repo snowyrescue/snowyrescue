@@ -1,10 +1,6 @@
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=coals%20in%20stockings&labelColor=%23a63715&countColor=%23242424&style=plastic)](https://visitorbadge.io/status?path=coal-irl)
-<br><p align="center">![image](https://64.media.tumblr.com/30690e0a7ff3350be3f199fa347db048/0c390c99e0e1c718-7f/s250x400/b6b8855d1a89b3a81e3b537d8095880bacc15c80.pnj)
+<br><p align="center"><img width="479" height="640" alt="IMG_7401" src="https://github.com/user-attachments/assets/25464800-dca2-4d07-bd95-8dac95c42fa6" />
  <br><p align="center">[ata](https://coal.atabook.org/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
-
-<br><p align="center">ykw im mad asl heres my vocal stim
-
-https://github.com/user-attachments/assets/9c7d2f4f-a2d3-4e57-bf57-9f46ffedd171
 
 <table align="center"><th>
 <details><summary> <br>$\text{\small\it\color{#d41914}dni}$</summary>  
