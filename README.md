@@ -9,7 +9,7 @@
 <br> pedos + zoos
 <br> if you have beef with my friends
 <br> Karin / Jill (pedo)
-<br> Pringlesmorty
+<br> Glassesmorty
 <br> Vintagefossil
 <br> M4gg0tzz
 <br> Arthurmorganslove
