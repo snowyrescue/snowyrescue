@@ -18,7 +18,8 @@
 <br> kitdere
 <br> cocopuffpuffs
 <br> Dandyzworldyuri (nazi + weirdo)
-<br> cherryflavoredfoam (ableist + said me asking someone to change  their font pissed them off)
+<br> cherryflavoredfoam 
+<br> (ableist + said me asking someone to change  their font pissed them off)
 <br> a1p1yuri
 <br> Minibuh
 <br> MortueDull
