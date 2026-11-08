@@ -8,16 +8,16 @@
 <br> pedos + zoos
 <br> if you have beef with my friends
 <br> Karin / Jill (pedo)
-<br> Cosmothepastryy (kid shipper)
-<br> Glassesmorty
-<br> Vintagefossil
-<br> M4gg0tzz
-<br> Arthurmorganslove
-<br> PennywisefansDNI
+<br> Cosmothepastryy
+<br> Glassesmorty 
+<br> Vintagefossil 
+<br> M4gg0tzz 
+<br> Arthurmorganslove 
+<br> PennywisefansDNI 
 <br> luiceren 
 <br> kitdere
 <br> cocopuffpuffs
-<br> Dandyzworldyuri
+<br> Dandyzworldyuri (nazi + weirdo)
 <br> a1p1yuri
 <br> Minibuh
 <br> MortueDull
