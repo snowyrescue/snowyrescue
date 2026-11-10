@@ -9,11 +9,13 @@
 <br> if you have beef with my friends
 <br> Karin / Jill (pedo)
 <br> Cosmothepastryy
-<br> Glassesmorty 
-<br> Vintagefossil 
-<br> M4gg0tzz 
-<br> Arthurmorganslove 
-<br> PennywisefansDNI 
+<br> Glassesmorty (maggot associate)
+<br> Vintagefossil (maggot associate)
+<br> M4gg0tzz (pred)
+<br> Arthurmorganslove (maggot associate)
+<br> PennywisefansDNI (maggot assoiate)
+<br> TheGlitchedSystem (maggot associate)
+<br> Pawlickk (maggot associate)
 <br> luiceren 
 <br> kitdere
 <br> cocopuffpuffs
@@ -23,7 +25,7 @@
 <br> a1p1yuri
 <br> Minibuh
 <br> MortueDull
-<br> Puppypilled
+<br> Puppypilled (maggot associate)
 <br> this will be updated whenever, your on here for a reason so don't bother asking why.
 
 
