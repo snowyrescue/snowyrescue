@@ -26,6 +26,8 @@
 <br> Minibuh
 <br> MortueDull
 <br> Puppypilled (maggot associate)
+<br> Divinefelined
+<br> (said you couldnt be a pred from fictional characters + defended maggot)
 <br> this will be updated whenever, your on here for a reason so don't bother asking why.
 
 
