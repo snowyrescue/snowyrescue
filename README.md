@@ -23,7 +23,8 @@
 <br> Dandyzworldyuri (nazi + weirdo)
 <br> cherryflavoredfoam 
 <br> (ableist + said me asking someone to change  their font pissed them off)
-<br> a1p1yuri
+<br> snowtimereindeer 
+<br> (a1p1yuri + freak, encouraged me to relapse, have a suicide date, watch gore, horrible person)
 <br> Minibuh
 <br> MortueDull
 <br> Puppypilled (maggot associate)
