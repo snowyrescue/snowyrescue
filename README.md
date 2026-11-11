@@ -11,7 +11,7 @@
 <br> Cosmothepastryy
 <br> Glassesmorty (maggot associate)
 <br> Vintagefossil (maggot associate)
-<br> M4gg0tzz (pred)
+<br> FrazzledFur (m4gg0tzz + pred)
 <br> Arthurmorganslove (maggot associate)
 <br> PennywisefansDNI (maggot assoiate)
 <br> TheGlitchedSystem (maggot associate)
