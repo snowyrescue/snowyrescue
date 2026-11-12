@@ -6,6 +6,7 @@
 <details><summary> <br>$\text{\small\it\color{#d41914}dni}$</summary>  
 <br> ship discourse
 <br> pedos + zoos
+<br> virtual families; "my sis/brother" and arent even fucking related, vrchat much?
 <br> if you have beef with my friends
 <br> Karin / Jill (pedo)
 <br> Cosmothepastryy
