@@ -19,14 +19,14 @@
 <br> Pawlickk (maggot associate)
 <br> kittiest (maggot associate)
 <br> luiceren 
-<br> kitdere
-<br> cocopuffpuffs
+<br> kitdere (shipped epsiten x toodles)
+<br> cocopuffpuffs (racist + defended kit)
 <br> Dandyzworldyuri (nazi + weirdo)
 <br> cherryflavoredfoam 
 <br> (ableist + said me asking someone to change  their font pissed them off)
 <br> snowtimereindeer 
 <br> (a1p1yuri + freak, encouraged me to relapse, have a suicide date, watch gore, horrible person)
-<br> Minibuh
+<br> Minibuh (suicide baiter + manipulator)
 <br> MortueDull
 <br> Puppypilled (maggot associate)
 <br> Divinefelined
