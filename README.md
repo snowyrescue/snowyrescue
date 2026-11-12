@@ -21,7 +21,6 @@
 <br> Pawlickk (maggot associate)
 <br> kittiest (maggot associate)
 <br> luiceren 
-<br> RIGM0RMORTIS
 <br> kitdere (shipped epsiten x toodles)
 <br> cocopuffpuffs (racist + defended kit)
 <br> Dandyzworldyuri (nazi + weirdo)
