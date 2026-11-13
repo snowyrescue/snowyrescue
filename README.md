@@ -14,6 +14,9 @@
 (gets mad when their friend hangs out with me LMFAOO)
 <br> Glassesmorty (maggot associate)
 <br> Vintagefossil (annoying and cant stand them)
+
+02:13[gift me wax skins 'ok'-everyon] wait i hope maggot is ok look at wlfs name
+02:14[@ ✨sign ata] I Hope theyre doing ok
 <br> ThatPaperCat  (annoying)
 <br> FrazzledFur (m4gg0tzz + pred)
 <br> Arthurmorganslove (maggot associate)
