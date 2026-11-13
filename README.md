@@ -13,8 +13,8 @@
 <br> T0uchtonetelephone 
 (gets mad when their friend hangs out with me LMFAOO)
 <br> Glassesmorty (maggot associate)
-<br> Vintagefossil (maggot associate)
-<br> ThatPaperCat
+<br> Vintagefossil (annoying and cant stand them)
+<br> ThatPaperCat  (annoying)
 <br> FrazzledFur (m4gg0tzz + pred)
 <br> Arthurmorganslove (maggot associate)
 <br> PennywisefansDNI (maggot assoiate)
