@@ -2,6 +2,12 @@
 <br><p align="center">![image](https://64.media.tumblr.com/0195064463302bf244519b788904fe65/2355fec4b1193b0b-7a/s540x810/9ca0b9b5ece85310c3d2fda7a9e1bb2cce447059.pnj)
  <br><p align="center">[ata](https://coal.atabook.org/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
 
+ <br><p align="center">**"FFR is disbanding"**
+
+https://github.com/user-attachments/assets/806d1fba-6471-4726-aa00-70936ca4300d
+
+
+
 <table align="center"><th>
 <details><summary> <br>$\text{\small\it\color{#d41914}dni}$</summary>  
 <br> ship discourse
