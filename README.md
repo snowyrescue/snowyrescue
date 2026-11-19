@@ -12,7 +12,7 @@
 <br> Cosmothepastryy
 <br> T0uchtonetelephone 
 (gets mad when their friend hangs out with me LMFAOO)
-<br> Glassesmorty (maggot associate)
+<br> TimothyMcNaughton (maggot associate)
 <br> Vintagefossil (annoying and cant stand them)
 
 02:13[gift me wax skins 'ok'-everyon] wait i hope maggot is ok look at wlfs name
