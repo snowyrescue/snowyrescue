@@ -6,41 +6,22 @@
 <details><summary> <br>$\text{\small\it\color{#d41914}dni}$</summary>  
 <br> ship discourse
 <br> pedos + zoos
-<br> virtual families; "my sis/brother" and arent even fucking related
 <br> if you have beef with my friends
 <br> Karin / Jill (pedo)
-<br> Cosmothepastryy
-<br> T0uchtonetelephone 
-(gets mad when their friend hangs out with me LMFAOO)
-<br> TimothyMcNaughton (maggot associate)
-<br> Vintagefossil (annoying and cant stand them)
-
-02:13[gift me wax skins 'ok'-everyon] wait i hope maggot is ok look at wlfs name
-02:14[@ ✨sign ata] I Hope theyre doing ok
-<br> ThatPaperCat  (annoying)
 <br> FrazzledFur (m4gg0tzz + pred)
 <br> Arthurmorganslove (maggot associate)
 <br> PennywisefansDNI (maggot assoiate)
-<br> TheGlitchedSystem (maggot associate)
-<br> Pawlickk (maggot associate)
 <br> kittiest (maggot associate)
-<br> luiceren 
 <br> kitdere (shipped epsiten x toodles)
 <br> cocopuffpuffs (racist + defended kit)
 <br> Dandyzworldyuri (nazi + weirdo)
-<br> cherryflavoredfoam 
-<br> (ableist + said me asking someone to change  their font pissed them off)
 <br> snowtimereindeer 
 <br> (a1p1yuri + freak, encouraged me to relapse, have a suicide date, watch gore, horrible person)
 <br> Minibuh (suicide baiter + manipulator)
-<br> MortueDull
-<br> Puppypilled (maggot associate)
 <br> Divinefelined
 <br> (said you couldnt be a pred from fictional characters + defended maggot)
-<br><p align="center"> **All docs on Maggot/FFR**: 
+<br><p align="center"> All docs on Maggot/FFR: 
+
 <br><p align="center">[doc 1](https://docs.google.com/document/d/1Ubq6HyxtDeAL61xFY5KmYQt6UC6MJ8yxQHa-MpwJk8c/edit?usp=sharing) 𓈒 [doc 2](https://docs.google.com/document/d/1yHchbIL-U7M5PeQIXxzcTig4NM0xAOxbKvpp1a_-9Ns/edit?usp=drivesdk) 𓈒 [doc 3](https://docs.google.com/document/d/1F_ASedZxjqAmxFuUF4qZqUbHR8xfMBMdusrHk_dmixA/edit?usp=drivesdk) 𓈒 [doc 4](https://docs.google.com/document/d/1ZH1cZka3lz2_FI0xEDNzwIxOBbwU-81v2j2nvIb9wkk/edit?usp=sharing) 𓈒 [doc 5](https://docs.google.com/document/d/1lwi3l6MlrfqIIobDM9UQtIysC_9qWoLHEk-npNAk6qo/edit?usp=sharing) 𓈒 [doc 6](https://docs.google.com/document/d/1hbPU59Z7l1uijMK4FmM77pVJdzCb4hSraEpPtnn1aeQ/edit?usp=sharing)
-<br> this will be updated whenever, your on here for a reason so don't bother asking why.
-
-
 
 
