@@ -3,6 +3,7 @@
  <br><p align="center">[ata](https://coal.atabook.org/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/bookhazard)
 <br><p align="center">[Pony Town Spawn Bingo](https://bingobaker.com/#6b08acee1137d848)
 <br><p align="center">[Pony Town Docks Bingo](https://bingobaker.com#6b0a0088bf67e385)
+<br><p align="center">[Pony Town Bakery Bingo](https://bingobaker.com#6b0a0c37f606b268)
 <table align="center"><th>
 <details><summary> <br>$\text{\small\it\color{#d41914}dni}$</summary>  
 <br> ship discourse
