@@ -7,7 +7,8 @@
 <br> ship discourse
 <br> pedos + zoos
 <br> if you have beef with my friends
-<br> Karin / Jill (pedo)
+<br> Codypupp/Pupycorn/Karin / Jill 
+<br>(pedo + asked their 15 year old friend if they were single while being 19+)
 <br> FrazzledFur (m4gg0tzz + pred)
 <br> Arthurmorganslove (maggot associate)
 <br> PennywisefansDNI (maggot assoiate)
